@@ -1,2 +1,2 @@
 # certificates
-all my certifications
+all my awards and course certifications
